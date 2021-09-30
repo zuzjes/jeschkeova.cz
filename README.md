@@ -1,0 +1,1 @@
+# jeschkeova.cz
